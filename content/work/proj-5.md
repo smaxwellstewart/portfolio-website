@@ -1,5 +1,5 @@
 Montreal, 2014
 
-I choreographed this piece. We were exploring the concept of vulgarity through profane gesture as well as costume and object. We used many different taboo hang gestures from around the world and threw them out to the audience in a playful and fun manner. I had known about the second piece of music for a while and was very pleased with its fit into the dance.
+I choreographed and danced in this piece. It was an attempt to find comic absurdity in the subjects that we associate with depth and sacredness. I was interested in using the typewriter's rhythm and accordion's musicality to create a narrative where I became a puppet, transforming through riddles and song. It was inspired by a puppet show at a festival that I fell in love with.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QZ9hhQ_UaTU" frameborder="0" allowfullscreen></iframe>
